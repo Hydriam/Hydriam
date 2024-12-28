@@ -1,0 +1,3 @@
+- 🌱 I’m currently learning : C
+- 📫 How to reach me
+   -Discord : kamil0117_
